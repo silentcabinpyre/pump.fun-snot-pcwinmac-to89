@@ -1,4 +1,4 @@
-# 
+# Exclusivo pump.fun sniper bot predefinições para Mac OS | Avançado pump.fun sniper bot predefinições para PC Windows. Com visualização de dados e análise de dados históricos — otimizado para máximo desempeño en cada plataforma.
 
 
 
